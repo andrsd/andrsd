@@ -1,4 +1,4 @@
-Software engineer for scientific project and not only.
+Software engineer for scientific projects and not only.
 
 ### Languages
 
